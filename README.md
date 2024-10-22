@@ -2,7 +2,7 @@
 
 👀 Intrested in Growing myself everyday
 
-👯‍♀️ Looking to collaborate
+🤝 Looking to collaborate
 
 ## 📫 Connect with me
 
